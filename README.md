@@ -21,4 +21,4 @@ _NONE_. My moto is
 
 So i dont really have anything to fear. Yolo.
 
-my favorite musics are in this [playlist] (https://www.youtube.com/watch?v=mD08faJavkY&t=863s)
+my favorite musics are in this [playlist](https://www.youtube.com/watch?v=mD08faJavkY&t=863s)
